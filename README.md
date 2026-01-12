@@ -1,2 +1,0 @@
-# photonucleic
-physics modular truths
